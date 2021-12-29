@@ -30,7 +30,7 @@ I like facing big challenges and being able to learn form others.  #StudentModeA
 <h2> 🤝🏻 Connect with Me </h2>
  
 
-- https://www.linkedin.com/in/alonsojesusdiaz/<br/>
+- https://www.linkedin.com/in/nahuel-paolinelli/<br/>
 
-- alonsodiazlip@gmail.com<br/>
+- nahuel.paolinelli@gmail.com<br/>
 
